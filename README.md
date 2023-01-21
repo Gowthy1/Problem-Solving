@@ -1,3 +1,3 @@
 # Problem-Solving
 
-I solve probelms frequemtly and upload here.
+I solve probelms frequently and upload here.
